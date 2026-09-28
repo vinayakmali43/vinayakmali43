@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm perusing degree in Computer Engineering.<br>I'm looking for internship/job.<br>I'm currently learning developing skills.<br> 
+I'm perusing degree in Computer Engineering.<br>I'm currently learning developing skills.<br> 
 
 
 ## 🌐 Socials:
